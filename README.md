@@ -1,1 +1,1 @@
-# Yazilim-Muhendisligi-Oryantasyon-Vize-Sinavi
+https://youtu.be/KKszEg0iCnk
